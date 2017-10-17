@@ -1,3 +1,3 @@
 # fantastic-potato - Fake news
 my first thing
-no they are not - they are just bloody potatoes
+MY POTATOES ARE FANTASTIC!!! No they are not - they are just bloody potatoes
